@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nirmalnpatel111  
+- 👀 I’m interested in Web Development and AI  
+- 🌱 I’m currently learning Web Development  
+- 💞️ I’m looking to collaborate on web dev projects and AI-related innovations  
+- 📫 How to reach me: nirmalnpatel54321@gmail.com  
+- 😄 Pronouns: He/Him  
+- ⚡ Fun fact: I love coding while snacking on potato chips during late-night sessions!
